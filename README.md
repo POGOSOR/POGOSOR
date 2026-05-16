@@ -14,7 +14,7 @@
 <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/cooltext508309160021909%20(1).png" width="160">
 
 
-$\text{\color{#ffffff} decay⠀ಇ⠀holyterminal⠀✧⠀ask }$\
+$\text{\color{#ffffff} decay⠀ಇ⠀voidwalker⠀✧⠀ask }$\
 $\text{\color{#ffffff} aroacespec⠀⠀♪⠀⠀ambiamorous }$\
 $\text{\color{#ffffff} ❛⠀19⠀:⠀ꕮ⠀physment disabled }$
 
