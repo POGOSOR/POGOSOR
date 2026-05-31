@@ -8,7 +8,7 @@
 
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/Spoke_skin.webp" width="160">
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/Untitled256_20260531080024%20(1).png" width="260">
 </b></p>
 
 
