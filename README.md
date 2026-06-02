@@ -16,7 +16,7 @@ $\text{\color{#522927} god is dead⠀<O>⠀it will reign⠀<O>⠀you will never 
 $\text{\color{#522927} richy⠀⠀<O>or<O>⠀⠀hoarder⠀<O>⠀he/him⠀<O>⠀wonderland.jar fan}$
 
 
-![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=522927&label=Four+months,+One+week,Two+days+and+Three+hours)
+![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=522927&label=Four+months,+One+week,+Two+days+and+Three+hours)
 
 $\text{\color{#522927} it will be king⠀<O>⠀and you will die⠀<O>⠀somewhere not real }$
 
