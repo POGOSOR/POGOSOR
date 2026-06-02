@@ -5,20 +5,20 @@
 
 <div align="center">
 
-
+$\text{\color{#522927} god is dead⠀<O>⠀it will reign⠀<O>⠀you will never wake up }$
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/Untitled256_20260531080024%20(1).png" width="260">
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/HJRhD6OWEAAj8fe.jpg" width="260">
 </b></p>
 
 
 
-$\text{\color{#ffffff} spoke⠀ಇ⠀sylvester⠀✧⠀ask }$\
-$\text{\color{#ffffff} aroacespec⠀⠀♪⠀⠀ambiamorous }$\
-$\text{\color{#ffffff} ❛⠀19⠀:⠀ꕮ⠀physment disabled }$
+$\text{\color{#522927} richy⠀⠀<O>or<O>⠀⠀hoarder⠀<O>⠀he/him⠀<O>⠀wonderland.jar fan}$
 
 
-![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=000000&label=Four+months,+One+week,Two+days+and+Three+hours)
+![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=522927&label=Four+months,+One+week,Two+days+and+Three+hours)
+
+$\text{\color{#522927} it will be king⠀<O>⠀and you will die⠀<O>⠀somewhere not real }$
 
 </div>
  </td>
