@@ -5,20 +5,20 @@
 
 <div align="center">
 
-$\text{\color{#522927} god is dead⠀<O>⠀it will reign⠀<O>⠀you will never wake up }$
+$\text{\color{#cd5a7c} kiss me⠀<O>⠀and tell me⠀<O>⠀you hate me }$
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/HJRhD6OWEAAj8fe.jpg" width="260">
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/tumblr_c2dd844760676582c9a27165d4348d55_30474287_1280.png" width="360">
 </b></p>
 
 
 
-$\text{\color{#522927} richy⠀⠀<O>or<O>⠀⠀hoarder⠀<O>⠀he/him⠀<O>⠀wonderland.jar fan}$
+$\text{\color{#d6ddd9} wonderland⠀⠀<O>or<O>⠀⠀sequence⠀<O>⠀he/ask⠀<O>⠀wonderland.jar fan}$
 
 
-![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=522927&label=Four+months,+One+week,+Two+days+and+Three+hours)
+![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=000000&label=Four+months,+One+week,+Two+days+and+Three+hours)
 
-$\text{\color{#522927} it will be king⠀<O>⠀and you will die⠀<O>⠀somewhere not real }$
+$\text{\color{#7acab2} kill me⠀<O>⠀and tell me⠀<O>⠀you love me }$
 
 </div>
  </td>
