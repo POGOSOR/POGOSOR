@@ -5,20 +5,25 @@
 
 <div align="center">
 
-$\text{\color{#cd5a7c} kiss me⠀<O>⠀and tell me⠀<O>⠀you hate me }$
+$\text{\color{#4e4b54} kiss me⠀<O>⠀and tell me⠀<O>⠀you hate me }$
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/tumblr_c2dd844760676582c9a27165d4348d55_30474287_1280.png" width="360">
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/image_2026-06-17_201526047.png" width="360">
 </b></p>
 
 
 
-$\text{\color{#d6ddd9} wonderland⠀⠀<O>or<O>⠀⠀sequence⠀<O>⠀he/ask⠀<O>⠀wonderland.jar fan}$
+$\text{\color{#cccccc} wonderland⠀⠀<O>carbon<O>⠀⠀sequence⠀<O>⠀he/ask⠀<O>⠀read rentry}$
 
 
 ![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=000000&label=Four+months,+One+week,+Two+days+and+Three+hours)
 
-$\text{\color{#7acab2} kill me⠀<O>⠀and tell me⠀<O>⠀you love me }$
+
+[rentry](https://rentry.co/-carboncopy)
+
+
+
+$\text{\color{#3b3857} kill me⠀<O>⠀and tell me⠀<O>⠀you love me }$
 
 </div>
  </td>
