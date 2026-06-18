@@ -8,12 +8,12 @@
 $\text{\color{#4e4b54} kiss me⠀<O>⠀and tell me⠀<O>⠀you hate me }$
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/image_2026-06-17_201526047.png" width="360">
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/THEYRE%20KILLING%20ME.gif" width="360">
 </b></p>
 
 
 
-$\text{\color{#cccccc} wonderland⠀⠀<O>carbon<O>⠀⠀sequence⠀<O>⠀he/ask⠀<O>⠀read rentry}$
+$\text{\color{#cccccc} wonderland⠀⠀<O>carbon<O>⠀⠀++⠀<O>⠀he/ask⠀<O>⠀read rentry}$
 
 
 ![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=000000&label=Four+months,+One+week,+Two+days+and+Three+hours)
