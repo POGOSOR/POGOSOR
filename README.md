@@ -19,7 +19,7 @@ $\text{\color{#cccccc} wonderland⠀⠀<O>carbon<O>⠀⠀++⠀<O>⠀he/ask⠀<O>
 ![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=000000&label=Four+months,+One+week,+Two+days+and+Three+hours)
 
 
-[rentry](https://rentry.co/carboncopy)⠀⠀[guns.lol](https://guns.lol/pogosor)⠀⠀[prns.cc]()
+[rentry](https://rentry.co/carboncopy)⠀⠀[guns.lol](https://guns.lol/pogosor)⠀⠀[prns.cc](https://pronouns.cc/@pogosor)⠀⠀[atabook](https://pogosor.atabook.org)
 
 
 
