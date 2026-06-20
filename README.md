@@ -5,6 +5,11 @@
 
 <div align="center">
 
+<p><b>
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/d9ouu47-21ca45c6-01e9-49c2-b189-5bab6bc1b9d4.png" width="150"> <img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/d7ob0l7-95e4d503-f7d0-481c-8c83-e8fae34cebf7.png" width="150">
+</b></p>
+
+
 $\text{\color{#4e4b54} kiss me⠀<O>⠀and tell me⠀<O>⠀you hate me }$
 
 <p><b>
@@ -24,6 +29,11 @@ $\text{\color{#cccccc} wonderland⠀⠀<O>carbon<O>⠀⠀++⠀<O>⠀he/ask⠀<O>
 
 
 $\text{\color{#3b3857} kill me⠀<O>⠀and tell me⠀<O>⠀you love me }$
+
+
+<p><b>
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/pokemon8.png" width="260">
+</b></p>
 
 </div>
  </td>
