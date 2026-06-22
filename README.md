@@ -13,7 +13,7 @@
 $\text{\color{#4e4b54} kiss me⠀<O>⠀and tell me⠀<O>⠀you hate me }$
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/THEYRE%20KILLING%20ME.gif" width="360">
+<img align="center" src="https://file.garden/ZspxsFhuznUkgAQY/113461735_aMjROQ7JLPgSZoc%20(1).png" width="150">
 </b></p>
 
 
@@ -32,7 +32,7 @@ $\text{\color{#3b3857} kill me⠀<O>⠀and tell me⠀<O>⠀you love me }$
 
 
 <p><b>
-<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/pokemon8.png" width="260">
+<img align="center" src="https://file.garden/aW26Bw2LYQfOzvvc/github/pokemon8.png" width="250">
 </b></p>
 
 </div>
