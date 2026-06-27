@@ -18,7 +18,7 @@ $\text{\color{#4e4b54} kiss me⠀<O>⠀and tell me⠀<O>⠀you hate me }$
 
 
 
-$\text{\color{#cccccc} wonderland⠀⠀<O>carbon<O>⠀⠀++⠀<O>⠀he/ask⠀<O>⠀read rentry}$
+$\text{\color{#cccccc} carbon⠀⠀<O>silver<O>⠀⠀++⠀<O>⠀he/ask⠀<O>⠀read rentry}$
 
 
 ![](https://komarev.com/ghpvc/?username=wiifees&style=flat-square&color=000000&label=Four+months,+One+week,+Two+days+and+Three+hours)
